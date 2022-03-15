@@ -1,0 +1,2 @@
+# bungtaik
+konami hackakaun
